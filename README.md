@@ -10,7 +10,7 @@ Here are some ideas to get you started:-->
 - 👯 I’m looking to collaborate on python open-source project
 - 🤔 I’m looking for help with accelerating my learning with less time
 - 💬 Ask me about linux 
-- 📫 How to reach me: @TheCalculator07
+- 📫 How to reach me: https://twitter.com/TheCalculator07
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love science-fiction like the mandalorian and the like
 -  My favourite quote: Genius is 1% inspiration and 99% perspiration - Thomas Alva Edison

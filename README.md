@@ -12,5 +12,5 @@ Here are some ideas to get you started:-->
 - 💬 Ask me about linux 
 - 📫 How to reach me: https://twitter.com/TheCalculator07
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I love science-fiction like the mandalorian and the like
+- ⚡ Fun fact: I love science-fiction movies like the mandalorian and the like
 -  My favourite quote: Genius is 1% inspiration and 99% perspiration - Thomas Alva Edison

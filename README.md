@@ -14,9 +14,13 @@ Here are some ideas to get you started:-->
 - 💎 Treasures:Gods word(The Holy bible),ebooks,life,music🎧 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love science-fiction movies like the mandalorian and the like
-- 💬 Favourite Quotes: "Genius is 1% inspiration and 99% perspiration." - Thomas Alva Edison
-                       "If you don't wake up everyday with a burning desire to do things, you don't have enough goals." - Lou Holtz
-		       "Success is the sum of small efforts, repeated day in and day out." - Robert Collier
-                       "You don't have to be great to start, but you have to start to be great."  - Zig Zagler
+- 💬 Favourite Quotes:
+> "Genius is 1% inspiration and 99% perspiration." - Thomas Alva Edison
+
+> "If you don't wake up everyday with a burning desire to do things, you don't have enough goals." - Lou Holtz
+
+> "Success is the sum of small efforts, repeated day in and day out." - Robert Collier
+
+> "You don't have to be great to start, but you have to start to be great."  - Zig Zagler
 
 

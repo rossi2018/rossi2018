@@ -13,7 +13,8 @@ Here are some ideas to get you started:-->
 - 📫 How to reach me: [@thecalculator07](https://twitter.com/TheCalculator07)
 - 💎 Treasures:God's word(The Holy bible),ebooks,life,music🎧 
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I love science-fiction movies like the mandalorian and the like
+- ⚡ Fun fact: I love science-fiction movies (most especially the mandalorian) and synthwave musci 🎧
+
 - 💬 Favourite Quotes:
 > "Genius is 1% inspiration and 99% perspiration." - Thomas Alva Edison
 

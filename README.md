@@ -24,4 +24,4 @@ Here are some ideas to get you started:-->
 
 > "You don't have to be great to start, but you have to start to be great."  - Zig Zagler
 
-
+> "Anytime someone builds a little application that runs on a cell phone, there's something that goes on the server." – James Gosling, creator of the Java              programming language

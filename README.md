@@ -10,7 +10,7 @@ Here are some ideas to get you started:-->
 - 👯 I’m looking to collaborate on python open-source project
 - 🤔 I’m looking for help with accelerating my learning with less time
 - 💬 Ask me about linux 
-- 📫 How to reach me: [@thecalculator07](https://twitter.com/TheCalculator07)
+- 📫 How to reach me: [@rossi_ml](https://twitter.com/rossi_ml)
 - 💎 Treasures:God's word(The Holy bible),ebooks,life,music🎧 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love science-fiction movies (most especially the mandalorian) and synthwave musci 🎧

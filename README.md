@@ -13,7 +13,7 @@ Here are some ideas to get you started:-->
 - 📫 How to reach me: [@rossi_ml](https://twitter.com/rossi_ml)
 - 💎 Treasures:God's word(The Holy bible),ebooks,life,music🎧 
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I love science-fiction movies (most especially the mandalorian) and synthwave musci 🎧
+- ⚡ Fun fact: I love science-fiction movies (most especially the mandalorian) and synthwave music 🎧
 
 - 💬 Favourite Quotes:
 > "Genius is 1% inspiration and 99% perspiration." - Thomas Alva Edison
